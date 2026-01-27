@@ -1,2 +1,2 @@
 
-Hi! I'm **Shomok**, a **senior year Computer Science student at Taif University** 🇸🇦
+Hi! I'm **Shomok** 👩‍💻, a **senior Computer Science student** 🖥️ at **Taif University** 🇸🇦
